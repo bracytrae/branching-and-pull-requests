@@ -1,7 +1,7 @@
 # Pull Request Practice
 
-Hi, it's Trae ;3
-6/14/2026... 🌙
+Hi, it's Trae!
+6/14/2026... 🌱
 
 ## What I Learned
 
